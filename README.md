@@ -1,1 +1,1 @@
-# olinthakur.github.io
+# ai risk management & governance practitioner
